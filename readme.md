@@ -1,3 +1,3 @@
-CRHT is AWESOMEE!! AND GREATT!!
+CRHT is SUPERB!!
 home feature hapus
 
